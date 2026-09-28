@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/celestial-angel-meditation-sound/
 Product Price : 10 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
